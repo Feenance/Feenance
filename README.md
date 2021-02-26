@@ -1,4 +1,4 @@
-### Hi there 👋
+Halo kami dari https://www.Feenance.web.id  Silahkan di kunjungi yang sedang mencari referensi tentang Akuntansi. Keuangan, Finansial, dan Perenacanaan Keuangan  Hi there 👋
 
 <!--
 **Feenance/Feenance** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
